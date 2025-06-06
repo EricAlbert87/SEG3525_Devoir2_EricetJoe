@@ -1,1 +1,1 @@
-# SEG3503_Devoir2_EricetJoe
+# SEG3503_Devoir2_Ericet
